@@ -1,1 +1,0 @@
-# felsefesanatteknoloji.github.io
